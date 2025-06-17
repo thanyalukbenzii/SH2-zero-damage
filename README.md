@@ -1,0 +1,1 @@
+# SH2-zero-damage
